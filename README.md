@@ -6,17 +6,18 @@ fdhgndf fdg bfdgdfgbf f g f fdgb fg
 fdn df bdfb dfb d dfbdb dfbdfb
 d fbdfb dfb dfb dfb db db dfb 
 sd vdsf df dfb dfb dfb dfb g dfb 
-d bdf bfgbfgbfgfgngfn ggn
+d bdf bfgbfgbfgfgngfn ggndsfv sdfv 
 sdvsdvsd vsd vsdvsdvsdvsdv
-s dvsdvsdvsdv sd s dvsd sd
+s dvsdvsdvsdv sd s dvsd sdfvsdfv sdfv
 âc scasc sdv sdv sdv s sdv sdv sdv sd
-dv sdv sdv sdv sdv sdv sdv s
+dv sdv sdv sdv sdv sdv sdv sdsf vds
 s dvsd vsdv sdv sdv sdv sdv sdv 
-s dv sdvsdv sdv sdv sdv sdv 
+s dv sdvsdv sdv sdv sdv sdv sdfv sd v
 d fbdfb dfgbdfb dfbdfbđfbdbdfb d bd
-guygtuyguygyuguyguyguygugyg
-gnfg fgnfgfgfgfghfgfghfg fggf bgf
+guygtuyguygyuguyguyguygugygfv sdfv sdfv fds v
+gnfg fgnfgfgfgfghfgfghfg fggf bgf vds
 sdv sdv sdv sdv sdv sdv sv sv sv sdv 
 sd vsdv sdv sdv sdv sdv sdv sdv sd v
 sdv sdv sdv sdv sdv sdv sdv sdv sdv sdv dv
- sdv sdv sdv sdvs dv sdv sdv sdv sdv
+sd vsd vfs sd sdv sdv sdv sdvs dv sdv sdv sdv sdv
+ds vsdv sd fv s 
